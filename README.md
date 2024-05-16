@@ -1,0 +1,1 @@
+# exercase8_stokbarang
